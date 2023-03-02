@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CoolPenguin27
+- 👋 Hi, I’m @CoolPenguin27 (also SuperPenguin34/SuperPenguin on muiltiple platforms)
 - 📫 How to reach me: https://solo.to/superpenguin
 
 <!---
