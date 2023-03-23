@@ -1,4 +1,6 @@
-- 👋 Hi, I’m @CoolPenguin27 (also SuperPenguin34/SuperPenguin on muiltiple platforms)
+- 👋 Hey guys I'm CoolPenguin27 (SuperPenguin/SuperPenguin34 on other platforms)                                  
+Gamer, Roblox Dev and Linux Fan
+
 - 📫 How to reach me: https://solo.to/superpenguin
 
 <!---
