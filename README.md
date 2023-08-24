@@ -1,5 +1,5 @@
 - 👋 Hey guys I'm CoolPenguin27 (SuperPenguin/SuperPenguin34 on other platforms)                                  
-Gamer, Roblox Dev and Zorua Fan (Profile Pic Maker is listed on solo.to page)
+Gamer, Roblox Dev and Linux Fan (Profile Pic Maker is listed on solo.to page)
 
 - 📫 How to reach me: https://solo.to/superpenguin
 
