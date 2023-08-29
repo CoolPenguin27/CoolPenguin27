@@ -1,4 +1,4 @@
-- 👋 Hey guys I'm CoolPenguin27 (SuperPenguin/SuperPenguin34 on other platforms)                                  
+- 👋 Hey guys I'm SuperPenguin34                                 
 Gamer, Roblox Dev and Linux Fan (Profile Pic Maker is listed on solo.to page)
 
 - 📫 How to reach me: https://solo.to/superpenguin
